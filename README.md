@@ -1,6 +1,6 @@
 ## TODOS CON GIGI
 
-![Image](/imagenGigi1.jpg)
+![Image](imagenGigi1.jpg)
 
 ### [FACEBOOK TODOS CON GIGI](https://www.facebook.com/TodosConGigi)
 
