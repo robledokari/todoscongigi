@@ -2,6 +2,8 @@
 
 ![Image](/imagenGigi1.jpg)
 
+### [FACEBOOK TODOS CON GIGI](https://www.facebook.com/TodosConGigi)
+
 ### ESPAÑOL
 
 Gigi tiene 4 años y 9 meses, fue diagnosticada con Leucemia linfoblástica aguda L2 desde el 5 de septiembre del 2017.  La semana pasada nos dieron el resultado del aspirado de médula ósea, el resultado no fue el esperado, nos encontramos en la recta final del camino, nada está escrito, pero los numero no son favorables, con un 70% de blastos en médula ósea.
@@ -23,7 +25,7 @@ Prayer, positive vibes, and encouragement are greatly appreciated and also neede
 
 ## MEXICO
 
-### BANAMEX
+# BANAMEX
 Javier García Tinoco
 
 Tarjeta de débito
@@ -32,11 +34,7 @@ Tarjeta de débito
 CLABE Interbancaria
 002540900837308452
 
-## GOFUNDME
+## [GO FUND ME CLICK AQUI](https://www.gofundme.com/kdz4ue-todos-con-gigi)
 
-[GO FUND ME CLICK AQUI](https://www.gofundme.com/kdz4ue-todos-con-gigi)
 
-### CONTACTO
-
-[FACEBOOK TODOS CON GIGI](https://www.facebook.com/TodosConGigi)
 
