@@ -1,6 +1,6 @@
 ## TODOS CON GIGI
 
-![Image](https://scontent-qro1-1.xx.fbcdn.net/v/t1.0-9/50550784_2046634992092298_7082712988808904704_n.jpg)
+![Image](/imagenGigi1.jpg)
 
 ### ESPAÑOL
 
